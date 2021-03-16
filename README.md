@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @StelaCaramihai
-- 👀 I’m interested in creating invating things
+- 👀 I’m interested in creating inovating things
 - 🌱 I’m currently learning a bit of everything
 - 💞️ I’m looking to collaborate on projects that brings utility to pleople who are searching for
 - 📫 How to reach me: https://bit.ly/3rPw4bA
